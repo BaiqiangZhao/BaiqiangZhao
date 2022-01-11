@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+My name is Baiqiang Zhao. I am from China. 
+I am interested in learning to build cool stuff.
+My favorite hobby is playing online computer games with my friends and I like to play music with my friends as well. 
+I learned to play piano in elementary school and high school. I love to play accompaniment for my friends.  
